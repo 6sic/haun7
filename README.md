@@ -1,4 +1,4 @@
-- 👋 yo, I’m @haun7 / sic
+- 👋 yo, I’m @6sic / sic
 - 👀 ngl interested in fraud and discord.
 - 🌱 im learnin how to code hop off ma tip
 - 💞️ ian lookin to collaborate on anything unless i gain 
